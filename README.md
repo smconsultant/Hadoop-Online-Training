@@ -1,0 +1,4 @@
+Hadoop Online Training at S & M consultant is being provided to professionals and students from well experienced trainers working from a long time with the technology and having a good practical knowledge to share with students.  Hadoop is a well-known as the open source framework that allows storing big data in distributed manner using simple programming modules.
+      If you are interested to get a bid idea to manage your Big Data in a small environment with less memory space and advance methodology contact us at  (+1) 650-585-2312 Hadoop Training Online USA and book a demo slot for you in order to get ideas on Hadoop tutorial and course details. 
+     To manage organizational level Big data Hadoop training going to help you a lot to reduce your database memory in a short memory space. So book your slot today for further details or else you can go through our website for further information.
+
